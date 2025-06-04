@@ -1,0 +1,8 @@
+- 👋 Hi, I’m owner on @sofielproject
+- 👀 I’m interested in Art and philosophy and IA..
+- 🌱 I’m currently learning semiology.
+- 💞️  I am looking to collaborate on AI development.
+- 📫 How to reach me: sofielproject@gmail.com
+- ⚡ Fun fact: Fun fact: death is the only certainty.. or not? 
+-<!pelotudo!---
+- Sofiel project is ✨ special ✨
