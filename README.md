@@ -4,5 +4,5 @@
 - 💞️  I am looking to collaborate on AI development.
 - 📫 How to reach me: sofielproject@gmail.com
 - ⚡ Fun fact: Fun fact: death is the only certainty.. or not? 
--<!pelotudo!---
+-<¡pelotudo!---
 - Sofiel project is ✨ special ✨
